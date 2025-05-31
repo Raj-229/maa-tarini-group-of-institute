@@ -1,1 +1,1 @@
-# maa-tarini-group-of-institute
+# maatarini
